@@ -1,4 +1,4 @@
 ### Hi! My name is Rui Miguel Cardoso! 
 
 
-<img src= https://64.media.tumblr.com/0ddc3c9b95f3cfb4351a878bd4e5b397/df18597acbb64d64-03/s540x810/d4fd3cdbc713e9c1b52271042d44e961f0643a4f.gifv  width="600" height="445">
+<img src= https://www.google.com/url?sa=i&url=https%3A%2F%2Fhalfwayriight.tumblr.com%2Fpost%2F623380901879070721%2Fadam-smasher-is-a-fully-converted-cyborg-he-is&psig=AOvVaw25jfcBDsytS2irYpQ09dGV&ust=1678834896912000&source=images&cd=vfe&ved=0CA8QjRxqFwoTCID-28CB2v0CFQAAAAAdAAAAABAo  width="600" height="445">
