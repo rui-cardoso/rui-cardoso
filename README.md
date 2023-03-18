@@ -1,4 +1,4 @@
 ### Hi! My name is Rui Miguel Cardoso! 
 
 
-<img src= https://64.media.tumblr.com/6367674b82a1c148a6feb7f7acb497ba/01f18292bf4f260b-be/s540x810/7bbe31fed699954e80205db13597e9425917b68d.gifv  width="600" height="445">
+<img src= https://static0.gamerantimages.com/wordpress/wp-content/uploads/2022/10/cyberpunk-2077-adam-smasher-daylight-punch.jpg?q=50&fit=contain&w=1140&h=&dpr=1.5  width="600" height="445">
