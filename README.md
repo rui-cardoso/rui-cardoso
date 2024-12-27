@@ -1,4 +1,4 @@
-### Hi! My name is Rui Miguel Cardoso, but you can call me Muata. 
+### Hi! My name is Rui Miguel. 
 
 
 
